@@ -1,8 +1,25 @@
-- 👋 Hi, I’m @R2GANTENG
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+SELAMAT DATANG MEMBER KAMI YANG TERBUANG DARI KELUARGA 🙏🏻 ADA YANG BISA KAMI BANTU?😊😇BAYAR NYA FREE KOK CUMAN SEND KONTAK CEWE AJA
+__________________________________________
+donate: https://sociabuzz.com/r2ch31/tribe
+contacts: 083876103562
+email: radenrizki3105@gmail.com
+join gc config: coming soon
+telegram: http://t.me/bijiOntaTerbangG
+__________________________________________
+
+THANK YOU ALL SUPPORT:
+ALLAH SWT
+ORANG TUA (GW TERUTAMA)
+RADENRIZKINUSA
+FAIZ KONTOL
+ASEP KONTOL
+IDL KONTOL
+ALFVPN 
+NUSANTARA CHANNEL
+R2 CHANNEL
+KIZUNA NET
+__________________________________________
+
 
 <!---
 R2GANTENG/R2GANTENG is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
