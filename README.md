@@ -12,6 +12,7 @@ telegram: http://t.me/bijiOntaTerbangG
 __________________________________________
 
 THANK YOU ALL SUPPORT:
+
 ALLAH SWT
 
 ORANG TUA (GW TERUTAMA)
